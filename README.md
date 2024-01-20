@@ -1,6 +1,4 @@
 # 💥 Proxy-V3.85-CRACKED💥 
-Download
-
 This is a cracked version of the Proxy, that doesn't require a personal key.
 
 ## Setting up the proxy
